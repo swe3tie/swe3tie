@@ -6,7 +6,7 @@
 - 🌱 I’m currently learning Javascript, Python, maybe... C?
 - 📫 How to reach me:
   + 🎮 Discord: .20_1
-  + 📸 Facebook: Fb.com/swe3tie
+  + 📸 Facebook: Fb.com/swzetiee
 - 😄 Pronouns: he/him/Dra
 - ⚡ Fun fact: guess..?
 
