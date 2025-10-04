@@ -5,7 +5,7 @@
 - 🔭 I’m currently working on some stupid projects around Minecraft
 - 🌱 I’m currently learning Javascript, Python, maybe... C?
 - 📫 How to reach me:
-  + 🎮 Discord: .20_1
+  + 🎮 Discord: swz3tie.1
   + 📸 Facebook: Fb.com/swzetiee
 - 😄 Pronouns: he/him/Dra
 - ⚡ Fun fact: guess..?
